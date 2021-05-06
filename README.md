@@ -15,7 +15,7 @@ I have been self-taught Front-end since then with will to learn more.
 - 📫 How to reach me: raquelsfolio@gmail.com
 
 - ⚡ Hobbies and things that I like:   
-          👩🏼‍💻guess what.. I love do coding .You wouldn't guess 😝  
+          👩🏼‍💻guess what.. I love do coding .You wouldn't know 😝  
           📸 I do Photography and Photomanipulation. Just look at my avatar 😊 .Another example: [example](https://www.facebook.com/126355427566807/photos/a.143730735829276/1113976698804670/)  
           🎨 I do painting and Drawing  
           🥑 I love to cook, health food and plant based  
