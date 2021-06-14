@@ -15,14 +15,15 @@ I have been self-taught Front-end since then with will to learn more.
 - 📫 How to reach me: raquelsfolio@gmail.com
 
 - ⚡ Hobbies and things that I like:   
-          👩🏼‍💻guess what.. I love do coding .You wouldn't know 😝  
-          📸 I do Photography and Photomanipulation. Just look at my avatar 😊 .Another example: [example](https://www.facebook.com/126355427566807/photos/a.143730735829276/1113976698804670/)  
-          🎨 I do painting and Drawing  
-          🥑 I love to cook, health food and plant based  
-          🤸‍♀️ I do fitness and weights   
-          🧘‍♀️ I do meditation everyday   
-          🌳  Did I mention I love nature? yes I love everything about it. I love meditate there , taking big walks, riding bike and camping.  
-          🌽 and  so I do garden too.At least I try when I do have time  
-          🧝‍♀️If I had the oportunity to choose I would be an Elf. Dawrfs are cool too!!  
-          🐷 Finally but absolutly not the least. I love Animals .even if a 🐊 could be domesticated, I would have them.   
+          👩🏼‍💻guess what.. I do love coding .You wouldn't know 😝  
+          📸Sometimes I like doing Photography and Photomanipulation. as you can see in my avatar 😊 .Another example: [example](https://www.facebook.com/126355427566807/photos/a.143730735829276/1113976698804670/)  
+          🎨 I love painting and Drawing using a lot of different techniques
+          🥑 I love to cook healthy and plant based food 
+          🤸‍♀️ I do fitness and weights  
+          🧘‍♀️ I do meditation everyday  
+          🌳  Did I mention I love nature? yes I love everything about it. I love meditate there , taking big walks, riding bike and camping. I am happy with nature. 
+          🌽 I love plants and doing gardening 
+          🧝‍♀️If I had the oportunity to choose in which fantasy world I would live, would definitely be 'Lord of the Rings'
+          🎞 I love watching movies and series. Part of me is totally Geek
+          🐷I love animals💘
          
